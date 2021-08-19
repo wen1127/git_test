@@ -1,2 +1,2 @@
 no  go  to 
-nothing will change us to be bad
+nothing will change us to be good
