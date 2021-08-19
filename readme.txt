@@ -1,2 +1,2 @@
-yes  go  to 
+no  go  to 
 nothing will change us to be bad
